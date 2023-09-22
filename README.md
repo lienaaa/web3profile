@@ -1,4 +1,4 @@
-# MY WEB3 PROFILE PICTURES
+# MY WEB3 PROFILES PICTURES
 - 0xliena (1).jpg
 - 0xliena (2).jpg
 - 0xliena (3).jpg
